@@ -1,4 +1,4 @@
-## CV
+## Resume
 
 ### Download if you are looking to hire me:
 
